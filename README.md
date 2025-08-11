@@ -1,7 +1,7 @@
 # Braian Mezalira
 
 Suporte técnico de dia, **desenvolvedor de madrugada (ou de dia também, talvez pelas tardes, um pouco às noites, mas sim, sempre de madrugada)**.  
-Nascido em 1997, sobrevivente da internet discada, otaku não praticante, e atualmente fazendo um app para o **Uma Musume Pretty Derby** — sim, o jogo das garotas cavalo. 
+Nascido em 1997, sobrevivente da internet discada, otaku não praticante, e atualmente fazendo um app para o **Uma Musume Pretty Derby** — sim, o jogo das garotas cavalo.<br>
 Eu precisava do app? Não. Outras pessoas precisavam? Talvez. Eu tinha tempo pra fazer isso? Absolutamente não, mas tem algo nas garotas cavalo que me cativa. 
 
 ---
